@@ -1,4 +1,4 @@
-Notes for the Insland 2017 Northwest Permaculture Convergence
+Notes for the Inland 2017 Northwest Permaculture Convergence
 =============================================================
 
 * location: Hot Springs, Montana
